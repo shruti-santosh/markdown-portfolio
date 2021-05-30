@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[here is my twitter where i occasionally chatter because of impulses but nothing more](https://twitter.com/shruti_santosh_)
